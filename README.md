@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Elvixity
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on gaming
+- 📫 How to reach me: Dm me on discord
